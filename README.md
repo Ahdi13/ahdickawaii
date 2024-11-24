@@ -1,5 +1,3 @@
-//# ahdickawaii
-//web
 <!--=========================-!>
 Mau custom web ucapan online & tanpa watermark? Order Aja di Deka Tutorial !! (DM IG untuk order)
 + Youtube: Deka Tutorial
